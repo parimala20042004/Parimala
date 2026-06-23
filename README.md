@@ -83,4 +83,4 @@
 
 ---
 
-⭐️ From [Your Name](https://github.com/YOUR_USERNAME)
+⭐️ From [Parimala](https://github.com/YOUR_USERNAME)
